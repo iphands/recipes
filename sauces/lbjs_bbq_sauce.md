@@ -5,7 +5,7 @@
 - 6 cloves garlic
 - 3 tablespoons sweet pickle relish
 - 2 teaspoons prepared mustard
-- 1/4 cup w. sauce ??
+- 1/4 cup worcestershire sauce
 - 1/4 cup vinegar
 - 3 teaspoons salt
 - 1 teaspoon white pepper
