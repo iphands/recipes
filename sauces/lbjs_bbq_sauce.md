@@ -14,23 +14,23 @@
 - red pepper
 
 # Directions
-1. Melt 2 sticks butter
-2. Saute:
- - onions
- - bell pepper
- - celery
- - garlic cloves
-3. Add to the saute
- - sweet pickle relish
- - prepared mustard
- - w. sauce ??
- - vinegar
- - salt
- - white pepper
- - celery seed
- - brown sugar
- - red pepper to taste
-4. Simmer until reduced slightly
+1. Melt two sticks butter
+1. Saute:
+   * onions
+   * bell pepper
+   * celery
+   * garlic cloves
+1. Add to the saute:
+   * sweet pickle relish
+   * prepared mustard
+   * w. sauce ??
+   * vinegar
+   * salt
+   * white pepper
+   * celery seed
+   * brown sugar
+   * red pepper to taste
+1. Simmer until reduced slightly
 
 # Source
 Mammy
