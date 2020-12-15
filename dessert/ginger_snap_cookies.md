@@ -1,15 +1,16 @@
 # Ingredients
 - 8 oz unsalted butter
-- 1 1/4 cup + 2 tablespoons granulated sugar
+- 3/4 cup granulated sugar
 - 1/2 teaspoon vanilla extract
 - 2 small eggs or 1 1/2 large eggs
-- 1/3 cup molasses
+- 3/4 cup molasses
 - 3 cups all-purpose flour
 - 2 1/2 teaspoon baking soda
 - 1/2 teaspoon salt
 - 2 1/2 teaspoons cinnamon
 - 2 1/2 teaspoons ground ginger
-- 1/2 teaspoon finely ground black pepper
+- 3 teaspoons fresh ground ginger
+- 1 teaspoon finely ground black pepper
 
 # Directions
 1. Beat butter, add sugar, add vanilla, eggs, add molasses: Beat the butter until soft; add sugar, and beat until light and fluffy.
